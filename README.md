@@ -22,7 +22,8 @@ You can't play a game if you don't have a game.
 Devices such as PCs, laptops, iPads, iPhones, PS(n)s are essential for the game experience. Kids and parents are paying large sums of money to obtain them. Many homes have many versions of the PlayStation (2, 3, 4) and others have different Nintendo consoles such as the wii. If parents are not willing to shed the money kids can receive them in the form of gifts or purchase them from money gifts.
 Devices have become ubiquitous. There is always a device available to play with.
 
-> I play games on my iPad while my gaming station (powerful PC) is updating. But if we go out I borrow my mom's iPhone. -- Some kid
+> I play games on my iPad while my gaming station (powerful PC) is updating. But if we go out I borrow my mom's iPhone. 
+> -- Some kid
 
 You can't play games if you don't have a device to play on. But there are lots of devices around.
 
