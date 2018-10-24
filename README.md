@@ -1,4 +1,5 @@
 # Gamer Addiction
+By Ali Mahdi, 2018
 
 ## Objective
 
