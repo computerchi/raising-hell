@@ -69,4 +69,4 @@ The larger the discord between the parents the more agreeable the environment fo
 
 ## Conclusion
 
-This is an attempt to shed light on all aspects of the gamer addition issue to better understand its aspects. It is not meant to propose a solution. Solutions are left to your creativity.
+This was an attempt to shed light on all aspects of the gamer addition issue to better understand its aspects. We discussed some of the gamer needs that are necessary to keep the addition, as well as some wants that further feed the addiction by creating the desirable environment. It is not meant to propose a solution, but for any solution to be useful we must first understand and diagnose the issue. Solutions are left to your creativity.
