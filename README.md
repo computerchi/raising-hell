@@ -11,7 +11,7 @@ Our children have become addicted to games in a prevalent way that this has beco
 
 ## Gamer Needs
 
-All gamers share a common set of requirements to be able to operate. Not having on of the following may hinder or altogether prevent a gamer from doing what they love.
+All gamers share a common set of requirements to be able to operate. Not having one of the following may hinder or altogether prevent a gamer from doing what they love.
 
 ### Games
 
@@ -55,7 +55,7 @@ This social circle is feeding the addiction. Kids are competing with each other 
 
 ### YouTube and Twitch
 
-Gamers love to watch other gamers playing and commenting as they play games. Some are considered heroes and some use their names as part of their own usernames. So we are talking about role models that are broadcasting daily and their content is consumed daily. While listening to them may improve your English it can also influence the viewer in other ways. These _heroes_ present there mannerisms and language as they play. Language that is readily accepted by the children watching.
+Gamers love to watch other gamers playing and commenting as they play games. Some are considered heroes and some use their names as part of their own usernames. So we are talking about role models that are broadcasting daily and their content is consumed daily. While listening to them may improve your English it can also influence the viewer in other ways. These _heroes_ present their mannerisms and language as they play. Language that is readily accepted by the children watching.
 While YouTube and Twitch are not necessary for gamers to practice their addiction it certainly helps feed the addiction. Reducing access may have limited influence on the gamers.
 
 ### Parents ignorance
@@ -70,4 +70,4 @@ The larger the discord between the parents the more agreeable the environment fo
 
 ## Conclusion
 
-This was an attempt to shed light on all aspects of the gamer addition issue to better understand its aspects. We discussed some of the gamer needs that are necessary to keep the addition, as well as some wants that further feed the addiction by creating the desirable environment. It is not meant to propose a solution, but for any solution to be useful we must first understand and diagnose the issue. Solutions are left to your creativity.
+This was an attempt to shed light on all aspects of the gamer addiction issue to better understand its aspects. We discussed some of the gamer needs that are necessary to keep the addiction, as well as some wants that further feed the addiction by creating the desirable environment. It is not meant to propose a solution, but for any solution to be useful we must first understand and diagnose the issue. Solutions are left to your creativity.
