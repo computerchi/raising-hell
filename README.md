@@ -49,7 +49,7 @@ The social circle is growing as more and more kids are sucked into gaming. On-li
 
 > I enjoy playing on-line games with my friends, even when we are sitting together in one room.
 >
-> Some kid
+> -- Another kid
 
 This social circle is feeding the addiction. Kids are competing with each other to be the best of the best. Everybody wants to get ahead. This social circle includes kids from school, relatives, friends, as well as complete strangers that have become _best friends_.
 
